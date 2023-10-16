@@ -1,0 +1,1 @@
+https://community.apryse.com/t/how-can-i-download-including-watermark/8475
